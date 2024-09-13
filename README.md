@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kingsleyrobotmaster
 - 👀 I’m interested in Robots
-- 🌱 I’m currently learning Fll superpowered
+- 🌱 I’m currently learning Fll Submerged
 - 💞️ I’m looking to collaborate on a team
 - 📫 How to reach me kingsleychen691@gmail.com
 
